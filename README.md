@@ -11,7 +11,9 @@ https://drive.proton.me/urls/EJ0SV5K9G0#Tih9wrtjWSmk
 /Indian_278/Indian_278_55.png /Indian_278/Indian_278_23.png 0
 
 # YLFW_Dev
-Soon
+https://cloud.mail.ru/public/jjqP/2cUL7h7pY
+
+https://drive.proton.me/urls/R9X7KWCJBM#siYc264c7vUA
 
 # YLFW_DeID
 https://cloud.mail.ru/public/bnMA/eKGShdt4X
